@@ -1,4 +1,4 @@
-# 🎃 Halloween: The Game Ultimate Assistant | God Mode, No Clip & Unlimited Ammo
+# 🎃 Halloween: The Game Ultimate Assistant | God Mode, No Clip & Unlimited Ammo 
 
 ![Halloween: The Game Ultimate Assistant Preview](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRLHyxl8TgCm77kt-DKn2BRieEslKmx5HgrkJ24VG3ngw&s=10)
 
